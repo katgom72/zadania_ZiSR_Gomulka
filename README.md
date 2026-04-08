@@ -1,1 +1,1 @@
-# zadania_ZiSR_Gomulka
+# Katarzyna Gomułka zadania ZiSR 2026
